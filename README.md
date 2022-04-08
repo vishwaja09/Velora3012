@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Velora3012
+- 🌱 I’m currently learned about this 
+- 💞️ I’m looking to collaborate on something basic/
